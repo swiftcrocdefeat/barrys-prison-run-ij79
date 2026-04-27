@@ -1,4 +1,4 @@
-
+Experience escape waves for lucky blocks like never before with escape waves for lucky blocks custom Script, the #1 Script. Includes auto-heal and
 
 
 
